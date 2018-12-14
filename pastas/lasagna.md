@@ -38,3 +38,4 @@ Place the dish in the oven on the top shelf and cook for about 45 minutes, or un
 * Look for canned tomatoes in 'rich tomato juice'. They're a bit more expensive, but definitely worthwhile
 * Fresh basil and pepper are a must.
 * Try it with minced lamb
+* Try it with Italian sausage
